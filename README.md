@@ -1,1 +1,1 @@
-# Labyrinthe-Hant-
+# Labyrinthe-Hanté
